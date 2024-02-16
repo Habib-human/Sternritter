@@ -1,1 +1,1 @@
-# Project from my undergrad period
+# Projects from my undergrad period
